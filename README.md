@@ -16,3 +16,7 @@
 * [人的败坏与悔改-基督徒的生命方式](https://www.asuswebstorage.com/navigate/a/#/s/1FA9BC0120474291BFE0FA8241DC02EAY)
 
 * [赞美生命旅程](https://www.asuswebstorage.com/navigate/a/#/s/A336E43E87A24403B5906BA50F579316Y)
+
+* [福音的内容和得救的确据](https://www.asuswebstorage.com/navigate/a/#/s/49DDE8ED2C0743D3ADB09C9C10D1AD89Y)
+
+* [教会与会员](https://www.asuswebstorage.com/navigate/a/#/s/80DA0B573ED4476D962B88787661432AY)
